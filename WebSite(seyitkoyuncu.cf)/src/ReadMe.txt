@@ -1,0 +1,1 @@
+You need take out all photos and src codes for see final result.
